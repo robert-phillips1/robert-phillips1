@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @robert-phillips1
+- 👀 I’m interested in photography
+- 🌱 I’m currently learning how to look after small humans
+- 💞️ I’m looking to collaborate on fun stuff
